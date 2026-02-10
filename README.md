@@ -1,0 +1,1 @@
+# 2026-File_Extenction_Blocker_Extension
